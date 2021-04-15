@@ -1,3 +1,0 @@
-yooo
-yoooooo
-oooooo
